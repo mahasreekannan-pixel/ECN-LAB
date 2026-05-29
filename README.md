@@ -54,6 +54,10 @@
 
 <img width="1600" height="715" alt="image" src="https://github.com/user-attachments/assets/a15ca2a5-889d-4633-a42f-78483f370e35" />
 
+**MARK SPLIT UP:**
+
+<img width="1600" height="1222" alt="image" src="https://github.com/user-attachments/assets/c46ce9e8-bc7c-45d5-a7b9-30ba430237ef" />
+
 
 **RESULT:**
 
